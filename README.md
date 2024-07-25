@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a new project
 - 📫 How to reach me 345345
 - 😄 Pronouns: she
-- ⚡ Fun fact: i want to learn how to drive a bike
+- ⚡ Fun fact: When i put my head on to learning something,sure thing i will never forget it.
 
 <!---
 Stellasandra/Stellasandra is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
